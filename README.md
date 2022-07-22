@@ -1,4 +1,4 @@
-## Oii 
+## Oii :)
 
 <div align="center">
   <a href="https://github.com/vn012">
